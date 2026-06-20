@@ -1,15 +1,15 @@
-# dni ◞◞𖤐
+<b> dni ◞◞𖤐 </b>
 
 ⸝⸝
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[basic >do not interact< list](https://basic-dni.crd.co/)
-<p align="center">+ <b>please </b> dni if you excuse, defend, or advocate for creators, actors, or public figures with credible allegations or evidence against them. saying you're " against what they did " while actively defending them is not something i want around me.</p> 
+<p align="center">+ <i>please </i> dni if you excuse, defend, or advocate for creators, actors, or public figures with credible allegations or evidence against them. saying you're " against what they did " while actively defending them is not something i want around me.</p> 
 
 <p align="center"> if i dont like you, ill just avoid you. </p>
 
 ⸝⸝
 
-# byi / boundaries ◞◞𖤐
+<b>byi / boundaries ◞◞𖤐 </b>
 
 ⸝⸝
 ⠀⠀⠀⠀⠀⠀
@@ -19,7 +19,7 @@
 
 ⸝⸝
 
-<p align="center">⠀i’m pretty awkward with people i dont know well. if i seem dry or i just stop continuing a conversation, i’m not trying to be rude, i just <b>do not</b> know what to say. i become much more talkative once i'm comfortable with you. </p>
+<p align="center">⠀i’m pretty awkward with people i dont know well. if i seem dry or i just stop continuing a conversation, i’m not trying to be rude, i just <i>do not</i> know what to say. i become much more talkative once i'm comfortable with you. </p>
 
 <p align="center">⠀please use tone tags when necessary, especially if we're not close yet. i tend to take things literally and may misinterpret jokes or affectionate insults as genuine! </p>
 
