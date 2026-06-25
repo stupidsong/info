@@ -23,8 +23,6 @@
 ⠀⠀⠀⠀⠀⠀
 <p align="center">⠀i can come off as harsh sometimes, but im rarely ever serious. i banter & playfight a lot with people i’m comfortable with. if you're uncomfortable with that, please let me know</p>
 
-<p align="center"> i also use a lot of humor and sometimes make kms/kys jokes. if you're uncomfortable with that, please lmk aswell</p>
-
 ⸝⸝
 
 <p align="center">⠀i’m pretty awkward with people i dont know well. if i seem dry or i just stop continuing a conversation, i just <i>do not</i> know what to say!!!!!</p>
